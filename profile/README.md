@@ -2,6 +2,8 @@
 
 we are a town, not really oom but we like oom
 
+we are out of memory (OOM)
+
 this was made so we could collaborate on a funni project which links our own separate projects together
 
 how wholesome, why doesn't the world take note? this is such a poggies example of good foss collaboration and happiness
