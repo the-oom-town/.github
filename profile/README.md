@@ -12,19 +12,19 @@ no guys i didnt write this late at night while incredibly tired and barely able 
 
 trust me guys im not comunist  
 
-view the unfinshed toomwn [https://the-toomwn.github.io/town-interactive/](here).
+view the unfinshed toomwn [here](https://the-toomwn.github.io/town-interactive/).
 
 ### Town Members: (an ungodly mix of usernames and irl names)
-[https://anonymoof1528.github.io/into-the-shadow-garten/](Anonymoof1528)  
-[https://super-cookies.github.io/duk/](Athu)  
-[https://grimreaper2654.github.io/Notes/content/notes/cringe.html](Choyu)  
-[https://edsobsidiannotes.netlify.app/](Edward)  
-[https://rubver16.github.io/joles-notes/](Jole)  
-[https://nottaro.github.io/notes-dump/](Jonathan)  
-[https://macesnotes.netlify.app/](Mace) (Sponsored by MacELine™)
-[https://grim4reaper.github.io/Year11Notes/](MQ-9 Reaper)  
-[https://notmario.github.io/thenotes/](Notmario)  
-[https://shan-mei.github.io/shanmeis-notes/](Shan-Mei)  
-[https://spicata.github.io/](Spicata)  
-[https://nottacoz.github.io/jacaranda/](Thomas)  
-[https://pi-thagoras.github.io/the-chicken-pen/](π-thagoras)  
+[Anonymoof1528](https://anonymoof1528.github.io/into-the-shadow-garten/)  
+[Athu](https://super-cookies.github.io/duk/)  
+[Choyu](https://grimreaper2654.github.io/Notes/content/notes/cringe.html)  
+[Edward](https://edsobsidiannotes.netlify.app/)  
+[Jole](https://rubver16.github.io/joles-notes/)  
+[Jonathan](https://nottaro.github.io/notes-dump/)  
+[Mace](https://macesnotes.netlify.app/) (Sponsored by MacELine™)<br>
+[MQ-9 Reaper](https://grim4reaper.github.io/Year11Notes/)  
+[Notmario](https://notmario.github.io/thenotes/)  
+[Shan-Mei](https://shan-mei.github.io/shanmeis-notes/)  
+[Spicata](https://spicata.github.io/)  
+[Thomas](https://nottacoz.github.io/jacaranda/)  
+[π-thagoras](https://pi-thagoras.github.io/the-chicken-pen/)  
