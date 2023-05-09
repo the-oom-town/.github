@@ -17,7 +17,7 @@ trust me guys im not comunist
 Anonymoof1528: [https://anonymoof1528.github.io/into-the-shadow-garten/](https://anonymoof1528.github.io/into-the-shadow-garten/)  
 Athu: [https://super-cookies.github.io/duk/](https://super-cookies.github.io/duk/)  
 Choyu: [https://grimreaper2654.github.io/Notes/content/notes/cringe.html](https://grimreaper2654.github.io/Notes/content/notes/cringe.html)  
-Edward: [https://eddietheed.github.io/obsidiannotes-v.3/](https://edsobsidiannotes.netlify.app/)  
+Edward: [https://edsobsidiannotes.netlify.app/](https://edsobsidiannotes.netlify.app/)  
 Jole: [https://rubver16.github.io/joles-notes/](https://rubver16.github.io/joles-notes/)  
 Jonathan: [https://nottaro.github.io/notes-dump/](https://nottaro.github.io/notes-dump/)  
 Mace: [https://macesnotes.netlify.app/](https://macesnotes.netlify.app/)  
