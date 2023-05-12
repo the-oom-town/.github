@@ -8,7 +8,7 @@ How wholesome, why doesn't the world take note? This is such a poggies example o
 
 No guys I didnt write this late at night while incredibly tired and barely able to read what I am writing.
 
-Trust me guys I'm not comunist.
+Trust me guys I'm not communist.
 
 view the unfinshed toomwn [here](https://the-toomwn.github.io/town-interactive/).
 
